@@ -1,4 +1,4 @@
-- 👋 Hi, I’m kgrai
+- 👋 Hi, I’m Varun Rai
 - 👀 I’m interested in web and app development
 - 🌱 I’m currently pursuing computerscience engineering
 - 📫 How to reach me ig:@kg_rai gmail:kgvarunrai@gmail.com
